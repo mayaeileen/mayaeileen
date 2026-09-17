@@ -12,7 +12,6 @@ NÃO gosto de café
 Sou ambidestra 
 
 
-Voce me encontra aqui:
-email: mayaaeileen2@gmail.com
+Voce me encontra aqui: mayaaeileen2@gmail.com
 
 😀👋
