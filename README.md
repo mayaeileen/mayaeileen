@@ -1,7 +1,5 @@
 ## Ola mundo! 🙋🏾‍♀️
 
-Here are some ideas to get you started:
-
 Meu nome é Eileen, sou uma estudante de engenharia de software e moro em Minas Gerais
  
 Atualmente, divido todo o meu tempo entre a faculdade e projetos paralelos fora da faculdade
