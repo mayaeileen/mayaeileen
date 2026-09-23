@@ -7,7 +7,7 @@ Atualmente, divido todo o meu tempo entre a faculdade e projetos paralelos fora 
 Nos meus projetos, trabalho com as seguintes linguagens de programação: Phyton, SQL, JavaScript, TypeScript e c#
 
 Fun Facts:
-Tenho um gato chamado sushi
+Tenho 4 cachorrinhos
 NÃO gosto de café 
 Sou ambidestra 
 
