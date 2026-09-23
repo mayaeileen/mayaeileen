@@ -9,7 +9,9 @@ Nos meus projetos, trabalho com as seguintes linguagens de programação: Phyton
 Fun Facts:
 
 Tenho 4 cachorrinhos
+
 NÃO gosto de café 
+
 Sou ambidestra 
 
 
